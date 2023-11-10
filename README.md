@@ -16,6 +16,6 @@ Here are some ideas to get you started:
 -->
 I'm currently learning about software programming!
 I'm looking for help with coding errors I'm sure to encounter as I'm learning.
-The best way to reach me is through email: alexissharpe2022@gmail.com.
+The best way to reach me is through email: asharpe3@kent.edu.
 My pronouns are she/her/hers.
 Fun fact about me: I love to go paddleboarding and make homemade ice cream!  Ok, that's two :)
